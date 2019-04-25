@@ -10,17 +10,17 @@ already also although always am among amongst amount an and another any anyhow
 anyone anything anyway anywhere are around as at
 
 back be became because become becomes becoming been before beforehand behind
-being below beside besides between beyond both bottom but by
+being below beside besides between beyond bollocks both bottom bullshit but by
 
-call can cannot ca could
+call can cannot ca could cunt cunting
 
 did do does doing done down due during
 
 each eight either eleven else elsewhere empty enough even ever every
 everyone everything everywhere except
 
-few fifteen fifty first five for former formerly forty four from front full
-further
+few fifteen fifty first five for former formerly forty four from front fuck
+fucking fucks full further
 
 get give go
 
@@ -50,9 +50,9 @@ quite
 
 rather re really regarding
 
-same say see seem seemed seeming seems serious several she should show side
-since six sixty so some somehow someone something sometime sometimes somewhere
-still such
+same say see seem seemed seeming seems serious several she shit shits shitting
+should show side since six sixty so some somehow someone something sometime
+sometimes somewhere still such
 
 take ten than that the their them themselves then thence there thereafter
 thereby therefore therein thereupon these they third this those though three
