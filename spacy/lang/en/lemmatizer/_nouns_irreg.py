@@ -507,7 +507,7 @@ NOUNS_IRREG = {
     "dadoes": ("dado",),
     "dagoes": ("dago",),
     "damselfishes": ("damselfish",),
-    "data": ("datum",),
+    "data": ("data",),
     "daughters-in-law": ("daughter-in-law",),
     "daymio": ("daimio",),
     "daymios": ("daimio",),
