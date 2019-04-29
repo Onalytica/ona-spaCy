@@ -430,7 +430,6 @@ VERBS_IRREG = {
     "dabbing": ("dab",),
     "dagged": ("dag",),
     "dagging": ("dag",),
-    "dallied": ("dally",),
     "dammed": ("dam",),
     "damming": ("dam",),
     "damnified": ("damnify",),
